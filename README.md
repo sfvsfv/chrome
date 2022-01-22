@@ -1,6 +1,3 @@
-# chrome
-更多工具和编程问题可到此群，私人群，无广告.如果你不懂如何操作可加群询问：
+本up  b站链接：https://space.bilibili.com/591228087?spm_id_from=333.1007.0.0  多多支持下吧。
 
-
-![65918906](https://user-images.githubusercontent.com/62045791/149889983-c2bd0f7d-c3ee-4fd6-aa07-5c817e602496.png)
-
+如果你还想要别的破解插件，可以加我粉丝群找我要：428335755
